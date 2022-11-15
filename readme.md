@@ -76,6 +76,10 @@
 ### Project repository last update: 
 *23:50pm on 27 Nov (Sun).*
 
+### Peer Assessment Form:
+*23:50pm on 27 Nov (Sun). Please send the scanned copy to gh.zhang@polyu.edu.hk*
+
+
 ## Contact
 
 **General Inquiry**
